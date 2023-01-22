@@ -6,4 +6,6 @@
 
 ![image](Co-ownership.jpg)
 
+![image](Travel123.jpg)
+
 Additional details reference https://github.com/alpaddesai/LifeStyle
