@@ -14,7 +14,7 @@
 
 ![image](ExcessivePersonalCreditCardDebt.jpg)
 
-![image](CourtSelfHelp.jpg)
+![image](CourtSelfHelp.JPG)
 
 ![image](AcademicIntegrity.JPG)
 
