@@ -18,4 +18,6 @@
 
 ![image](AcademicIntegrity.JPG)
 
+![image](Unemploymentbenefits.jpg)
+
 Additional details reference https://github.com/alpaddesai/LifeStyle
