@@ -6,7 +6,7 @@
 
 ![image](Co-ownership.jpg)
 
-![image](RetiredParentsliveinIndia1.jpg)
+![image](RetiredParentsliveinIndiaI.jpg)
 
 ![image](Travel123.jpg)
 
