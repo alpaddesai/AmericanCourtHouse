@@ -6,7 +6,7 @@
 
 ![image](Co-ownership.jpg)
 
-![image](ParentsCountryIndia.jpg)
+![image](MarriedParentsIndia.jpg)
 
 ![image](Travel123.jpg)
 
