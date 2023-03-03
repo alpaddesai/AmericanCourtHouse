@@ -26,7 +26,7 @@
 
 ![image](Unemploymentbenefits.jpg)
 
-![image](NegativePsychology.jpg)
+![image](NegativePsychologyI.jpg)
 
 ![image](EthicsandExcellence.png)
 
