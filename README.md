@@ -6,8 +6,6 @@
 
 ![image](Co-ownership.jpg)
 
-![image](MarriedParentsIndia.jpg)
-
 ![image](Travel123.jpg)
 
 ![image](CrossingBoundaries.jpg)
