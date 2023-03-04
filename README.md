@@ -32,6 +32,8 @@
 
 ![image](GrudgeII.jpg)
 
+![image](Childcare.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![image](USCopyrightCertificate.png)
