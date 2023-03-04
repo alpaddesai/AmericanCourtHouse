@@ -28,7 +28,7 @@
 
 ![image](NegativePsychologyI.jpg)
 
-![image](TheGrudge.jpg)
+![image](THEGrudge.jpg)
 
 ![image](EthicsandExcellence.png)
 
