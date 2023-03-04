@@ -30,6 +30,8 @@
 
 ![image](THEGrudge.jpg)
 
+![image](GrudgeII.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![image](USCopyrightCertificate.png)
