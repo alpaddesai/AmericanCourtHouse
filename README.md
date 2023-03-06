@@ -32,6 +32,8 @@
 
 ![image](Childcare.jpg)
 
+![image](HealthIssues.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![image](USCopyrightCertificate.png)
